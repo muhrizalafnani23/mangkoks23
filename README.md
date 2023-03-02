@@ -1,0 +1,1 @@
+The Mangkoks adalah tempat makan untuk bakso, soto, rawon, dll.
